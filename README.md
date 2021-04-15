@@ -1,4 +1,5 @@
 # NinjaAD101
 
-Hi im bad.
-Im a noob at programming LLMFAOOAOAFJAOSfOAWfajwfopawjesfaw XD
+Hi i'm bad.
+Im a noob at programming XD.
+I'm just learning.
