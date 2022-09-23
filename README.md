@@ -1,4 +1,4 @@
-# NinjaAD101
+# AD41
 
 Hi i'm bad.
 Im a noob at programming XD.
